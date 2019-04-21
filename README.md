@@ -1,1 +1,0 @@
-# vsmadeski.github.io
